@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nigheteru
+- I'm interested in Cybersecurity, zero days, exploit, web hacking, i just wanna learn
+- pls help me, if u know how to know, tell me, i wanna learn and help other ppls.
+- 
